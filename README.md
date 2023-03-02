@@ -1,1 +1,1 @@
-# GitPractice
+# Paragon z warzywaniaka
